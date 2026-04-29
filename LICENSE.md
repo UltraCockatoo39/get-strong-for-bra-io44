@@ -1,4 +1,4 @@
-
+smart Scripts for get strong for brainrots is the best get strong for brainrots Script, featuring no cooldown and teleport. Safe and powerful for all
 
 
 
